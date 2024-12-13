@@ -6,6 +6,6 @@ other games i liked to play : MLBB, GuardianTales, Roblox :33
 
 feel free to int, i usually dont talk much im sorry ,'(
 
-![image](https://github.com/user-attachments/assets/9a2d09a7-e205-48ca-bdc7-4e68893ab1e7)
+![image](https://github.com/user-attachments/assets/6d885b30-ca94-42ff-af42-cd5f438e5c5e)
 
 (THEYRE SO SILLY I LOVE THEM SM)
