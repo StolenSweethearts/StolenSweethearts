@@ -1,6 +1,6 @@
 minor, infj !! ^_^
 
-fandom : DanDaDan, BocchiTheRock, SoulEater, JJK, etc.
+fandoms : DanDaDan, BocchiTheRock, SoulEater, JJK, etc.
 
 other games i liked to play : MLBB, GuardianTales, Roblox :33 
 
